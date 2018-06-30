@@ -1,4 +1,4 @@
-#FpExperiencies #DawMp03Uf06 #Programació #BasesDeDades  
+#FpInfor #DawMp03Uf06 #Programació #BasesDeDades  
 
 L’amenaça als museus
 ===============================
